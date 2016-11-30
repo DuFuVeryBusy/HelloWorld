@@ -8,6 +8,6 @@ sdgf aewr
 saedfg
 s dfgse
 g
-o
+o亲，我想看到中文，可以吗？
 my
 god！
